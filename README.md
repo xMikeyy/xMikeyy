@@ -1,6 +1,6 @@
-## [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=FFFFFF&random=true&width=300&lines=Wsp+chat+I'm+Mikee+!+!)](https://git.io/typing-svg)
+## <img width="735" height="540" alt="Image" src="https://github.com/user-attachments/assets/d66e3739-986f-4cca-9a21-7c5cfa7ce3a3" />
 
-<img width="735" height="540" alt="Image" src="https://github.com/user-attachments/assets/d66e3739-986f-4cca-9a21-7c5cfa7ce3a3" />
+![Image](https://github.com/user-attachments/assets/bd51d153-46ae-492f-9f67-67cffb5d0b64)
 
 <!--
 **xMikeyy/xMikeyy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
