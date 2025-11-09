@@ -1,6 +1,4 @@
- IM SO CLOSE TO 300+ FOLLOWERS EYYYY 
-<img width="735" height="540" alt="Image" src="https://github.com/user-attachments/assets/2aaae9f0-f6c6-4b49-83e5-15e01cb619c9" />
-
+new readme coming soon!
 <!--
 **xMikeyy/xMikeyy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
