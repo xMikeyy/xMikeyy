@@ -1,5 +1,4 @@
-![Image](https://github.com/user-attachments/assets/254866ee-1fd0-464a-a2e1-95f630d09709)
-![Image](https://github.com/user-attachments/assets/5776f455-c395-4cfe-9acd-a1dc08e52581)
+new readme coming soon !!
 <!--
 **xMikeyy/xMikeyy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
