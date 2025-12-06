@@ -1,4 +1,5 @@
 <img width="2300" height="2300" alt="Image" src="https://github.com/user-attachments/assets/35b23a63-f2a9-4b13-9f65-df8db18a9f0c" />
+<img width="390" height="365" alt="Image" src="https://github.com/user-attachments/assets/b73d6e83-dfd2-4910-afc5-dd53c8fb6842" />
 <!--
 **xMikeyy/xMikeyy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
