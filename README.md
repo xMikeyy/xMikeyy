@@ -1,4 +1,13 @@
+<img width="2500" height="800" alt="Image" src="https://github.com/user-attachments/assets/fa4ca601-24e2-4a9c-ae56-adb86692e103" />
 <img width="2500" height="2500" alt="Image" src="https://github.com/user-attachments/assets/c5f05719-ca1a-4283-ad4b-d11e4df9ba4f" />
+<img width="2500" height="800" alt="Image" src="https://github.com/user-attachments/assets/53603a6f-a5b2-4c46-b172-6be85dd3c0b3" />
+info ^^ Name : Mikey, Pronouns : She / Him ( Genderfluid ! ) Age : 12-16 ! , Lesbian : ) !
+
+int ! : sweet people , artists ! , funny , kind , 13+ , Any Ages Is Fine ! 
+
+DNI . : Rude people , betrayers , racist , predators , Liars , 
+
+( Pls Read Before Meeting Me ! )
 <!--
 **xMikeyy/xMikeyy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
