@@ -6,7 +6,7 @@ info ^^ Name : Mikey, Pronouns : She / Him ( Genderfluid ! ) Age : 12-16 ! , Les
 
 int ! : sweet people , artists ! , funny , kind , 13+ , Any Ages Is Fine ! 
 
-DNI . : Rude people , betrayers , racist , predators , Liars , 
+DNI . : Rude people , betrayers , racist , predators , Liars , Copycats 
 
 ( Pls Read Before Meeting Me ! )
 <!--
