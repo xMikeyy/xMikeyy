@@ -1,3 +1,4 @@
+remaking the readme later
 <img width="2500" height="800" alt="Image" src="https://github.com/user-attachments/assets/fa4ca601-24e2-4a9c-ae56-adb86692e103" />
 <img width="2500" height="2500" alt="Image" src="https://github.com/user-attachments/assets/c5f05719-ca1a-4283-ad4b-d11e4df9ba4f" />
 <img width="2500" height="800" alt="Image" src="https://github.com/user-attachments/assets/53603a6f-a5b2-4c46-b172-6be85dd3c0b3" />
