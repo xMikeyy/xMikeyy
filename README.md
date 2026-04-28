@@ -1,6 +1,6 @@
-<img width="2500" height="2500" alt="Image" src="https://github.com/user-attachments/assets/c5f05719-ca1a-4283-ad4b-d11e4df9ba4f" />
+WORKING ON NEW README !!
 
-Info ^^ , Name : Mikey, Pronouns : She / Him ( Genderfluid ) Age : 12-16 ! , Lesbian : ) !
+Info ^^ , Name : Mike/Mikey . Pronouns : She / Him ( Genderfluid ) Age : 12-16 ! , Lesbian : ) !
 
 int ! : sweet people , artists ! , funny , kind , Gamers , Any Age !
 
