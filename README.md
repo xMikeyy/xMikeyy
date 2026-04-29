@@ -1,12 +1,4 @@
 WORKING ON NEW README !!
-
-Info ^^ , Name : Mike/Mikey . Pronouns : She / Him ( Genderfluid ) Age : 12-16 ! , Lesbian : ) !
-
-int ! : sweet people , artists ! , funny , kind , Gamers , Any Age !
-
-DNI . : Rude people , betrayers , racist , predators , Liars , Copycats , Brainrotted , BackStabbers
-
-( Pls Read Before Meeting Me ! )
 <!--
 **xMikeyy/xMikeyy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
