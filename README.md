@@ -1,4 +1,4 @@
-TYSM FOR 600+ !!! still working on readme + just came back after a week or more😓
+came back after a long day . readme soon (⁠๑⁠•⁠﹏⁠•⁠)
 <!--
 **xMikeyy/xMikeyy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
