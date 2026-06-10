@@ -1,4 +1,6 @@
-came back after a long day . readme soon (⁠๑⁠•⁠﹏⁠•⁠)
+lazy readme (⁠๑⁠•⁠﹏⁠•⁠)
+
+<img width="2475" height="1820" alt="Image" src="https://github.com/user-attachments/assets/d1b3c2fb-867a-41f3-bbeb-25894c8e64d6" />
 <!--
 **xMikeyy/xMikeyy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
