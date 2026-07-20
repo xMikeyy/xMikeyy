@@ -1,8 +1,4 @@
-lazy readme (⁠๑⁠•⁠﹏⁠•⁠)
-
-<img width="2475" height="410" alt="Image" src="https://github.com/user-attachments/assets/e1f072b1-e078-4f23-bdf6-8de035587ff1" />
-<img width="2475" height="1820" alt="Image" src="https://github.com/user-attachments/assets/b071378d-186c-4280-887b-69fed08ce4f7" />
-<img width="2475" height="410" alt="Image" src="https://github.com/user-attachments/assets/e1f072b1-e078-4f23-bdf6-8de035587ff1" />
+making readme soon!! (THANK YOU FOR 700+!!!!!)
 <!--
 **xMikeyy/xMikeyy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
