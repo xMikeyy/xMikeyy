@@ -1,4 +1,4 @@
-making readme soon!! (THANK YOU FOR 700+!!!!!)
+<img width="2650" height="2121" alt="Image" src="https://github.com/user-attachments/assets/6bd99f13-68b9-42e5-b211-da7fcd6581de" />
 <!--
 **xMikeyy/xMikeyy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
