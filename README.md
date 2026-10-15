@@ -1,5 +1,4 @@
-I'm only active on this account after a month or weeks because I could be busy with things (⁠╥⁠﹏⁠╥⁠) . .
-<img width="2650" height="2121" alt="Image" src="https://github.com/user-attachments/assets/6bd99f13-68b9-42e5-b211-da7fcd6581de" />
+<img width="2400" height="1509" alt="Image" src="https://github.com/user-attachments/assets/2a52938c-5e78-4bd4-a509-482d49b42427" />
 <!--
 **xMikeyy/xMikeyy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
